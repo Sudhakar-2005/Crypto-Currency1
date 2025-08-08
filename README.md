@@ -1,1 +1,1 @@
-# Crypto-Currency1
+# Welcome to your Lovable Project!
